@@ -1,4 +1,4 @@
-### Bienvenidos a mi repositorio aqui veras mis proyectos👋
+### Bienvenidos a mi repositorio aqui veras mi Hoja de vida y mis proyectos👋
 
 [![New-imagen.png](https://i.postimg.cc/GmvhMD7d/New-imagen.png)](https://postimg.cc/tsCjJsGM)
 
